@@ -2,3 +2,4 @@
 ![image_alt](https://github.com/varshathombre21/Laptop-selling-showcase-system/blob/main/3%20laptop.png?raw=true)
 ![image_alt](https://github.com/varshathombre21/Laptop-selling-showcase-system/blob/main/3%20laptop%202nd%20pg.png?raw=true)
 ![image_alt](https://github.com/varshathombre21/Laptop-selling-showcase-system/blob/main/3%20laptops%203rd%20pg.png?raw=true)
+![image_alt](https://github.com/varshathombre21/Laptop-selling-showcase-system/blob/main/footer.png?raw=true)
